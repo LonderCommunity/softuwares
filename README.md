@@ -1,1 +1,1 @@
-# softuwares
+# softwares
